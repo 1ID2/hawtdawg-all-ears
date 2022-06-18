@@ -8,3 +8,11 @@ For those wyo are camera-shy,
 
 Showcase your best self-whether that means a fresh-from-the-groomer glamour
 
+## Where do I list my favorite treats?
+
+Open the Hawt Dawg app and click on "Edit Profile."
+
+Scroll down to the section called "Passions", and tell 
+potentail mates and friends all about the treats and toys 
+that make your tail wag.
+
